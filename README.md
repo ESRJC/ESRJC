@@ -1,4 +1,4 @@
-Hello Guys! I'am Emersonmtx and and I was forced to create another account for academic use...
+Hello Guys! I'am Emersonmtx and and I was forced to create another account for academic use... -_-
 follow me on github Emersonmtx
 
 --> BRAZIL(015) 🗺;
@@ -7,7 +7,7 @@ follow me on github Emersonmtx
 
 --> SYSTEN ANALIST & DEVELOPER 💪📊;
 
---> WORKING ELETRINIC & BOOTCAMP 📚;
+--> WORKING ELETRONIC & BOOTCAMP 📚;
 
 --> 3TDS N ETEC FERNANDO PRESTES 🌛;
 
